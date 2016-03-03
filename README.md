@@ -1,2 +1,0 @@
-# Ciao-mondo
-Breve descrizione
